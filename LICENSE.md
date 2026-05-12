@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pancakeswap trading bot with custom pancakeswap trading bot Addon | sniper-trades + rug-pull-detection. Featuring sniper-trades and rug-pull-detection, it's the
 
 
 
